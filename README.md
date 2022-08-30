@@ -1,1 +1,3 @@
+
+# KISS MY ASS SHREYANS AND EVAN
 # mandelbrot
